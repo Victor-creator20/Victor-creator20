@@ -1,5 +1,5 @@
 **Olá! Eu sou o Victor Hugo.
 
-- 🔭 Fazendo Tecnico em desenvolvimento de sistemas
+- 🔭 Cursando Tecnico em desenvolvimento de sistemas
 
 
